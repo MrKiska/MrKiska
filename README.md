@@ -1,3 +1,3 @@
 ### hi everyone
-I'm a boring person from Poland.
+I'm a boring person 
 
